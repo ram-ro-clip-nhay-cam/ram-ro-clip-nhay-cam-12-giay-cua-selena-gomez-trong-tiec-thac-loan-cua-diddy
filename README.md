@@ -1,6 +1,18 @@
-# ++XEM Rầm rộ clip nhạy cảm 12 giây của Selena Gomez trong tiệc thác loạn của Diddy
+# +XEM Rầm rộ clip nhạy cảm 12 giây của Selena Gomez trong tiệc thác loạn của Diddy
 
 Mạng xã hội Weibo của Trung Quốc bất ngờ lan truyền clip được cho là Selena 'thác loạn' tại tiệc của Diddy. 
+
+
+📺📱👉◄◄🔴 https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴 https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴 https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴 https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴 https://tinyurl.com/3namhbm4
+
 
 Sau Justin Bieber, tình cũ của anh là Selena Gomez bất ngờ trở thành tâm điểm khi bị cho là có dính líu đến "ông trùm" Diddy. Nguyên nhân là vì thông tin Selena lộ clip nhạy cảm tại tiệc "thác loạn" của Diddy tràn lan trên mạng xã hội Weibo của Trung Quốc. Đến nỗi "Selena Gomez" và "Diddy" leo thẳng lên Top 1 từ khóa được tìm kiếm nhiều nhất trên nền tảng này, lượng tương tác đang tăng đột biến. 
 
